@@ -1,4 +1,4 @@
-#Facebook is nearing a reputational point of no return (575 words)
+# Facebook is nearing a reputational point of no return (575 words)
 Source: [The Economist](https://www.economist.com/leaders/2021/10/09/facebook-is-nearing-a-reputational-point-of-no-return).
 
 ## Article's TLDR

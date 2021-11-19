@@ -1,4 +1,4 @@
-#Going door to door, this hero brings the world closer to ending polio (766 words)
+# Going door to door, this hero brings the world closer to ending polio (766 words)
 Source: [Gates Notes](https://www.gatesnotes.com/Health/Heroes-in-the-Field-Shumaila-Rehamani).
 
 ## Article's TLDR

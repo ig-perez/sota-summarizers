@@ -1,4 +1,4 @@
-#Remote-first work is taking over the rich world (922 words)
+# Remote-first work is taking over the rich world (922 words)
 Source: [The Economist](https://www.economist.com/finance-and-economics/2021/10/30/remote-first-work-is-taking-over-the-rich-world).
 
 ## Article's TLDR
